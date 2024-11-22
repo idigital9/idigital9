@@ -2,8 +2,8 @@
 - 👀 I’m interested in gaming, streaming and video editing 
 - 🌱 I’m currently learning video editing 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: he/they
+- 📫 How to reach me 
+- 😄 Pronouns: he/she
 - ⚡ Fun fact: i'm apart of the furry fandom.
 
 <!---
